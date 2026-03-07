@@ -1,1 +1,1 @@
-Real SOLID full-stack developer.
+Real SOLID software engineer.
